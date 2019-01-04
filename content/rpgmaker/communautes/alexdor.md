@@ -664,3 +664,11 @@ La session est présidée par Sylvanor. Sephiroth XIII a le rôle de staff techn
 - Meilleur non-RPG : [La Déchéance](https://www.alexdor.info/?p=jeu&id=359)
 - Coup de cœur du public : [Chemin de CroiX: Inconscience](https://www.alexdor.info/?p=jeu&id=330)
 - Coup de cœur des jurés : [Ground 0](https://www.alexdor.info/?p=jeu&id=366)
+
+### Session 2005
+
+La phase d'inscription commence le 1er mars et se termine le 1er juin. Les nominations sont annoncées le 1er octobre et la cérémonie des résultats a lieu le 10 décembre.
+
+La session est présidée par le nuage. Sephiroth XIII a le rôle de staff technique. Gratteur et Masthiks sont responsables du site web. DragonSix, Dark Slash, Lord D et YF06 se partagent le rôle de chef des jurés.
+
+#### Alex (meilleur jeu)
